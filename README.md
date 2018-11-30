@@ -6,6 +6,8 @@
 
 <li>Image class modification requires <code>Adob Photoshop CS6 </code> processing</li>
 
-<li>You can check out our established <a href="https://www.1ziy.cn/App" arget="_blank">https://www.1ziy.cn/App</a ><li>
+<li>You can check out our established <a href="https://www.1ziy.cn/App" arget="_blank">https://www.1ziy.cn/App</a></li>
 
+<li>Tone-Shadow Moon Fox's official Weibo <a href="https://weibo.com/chinazcwl"arget="_blank"> Tone-Shadow Moon Fox</a></li>
+<li>You can check out our established <a href="https://www.1ziy.cn/App" arget="_blank">https://www.1ziy.cn/App</a ></li>
 <li>Tone-Shadow Moon Fox's official Weibo <a href="https://weibo.com/chinazcwl"arget="_blank"> Tone-Shadow Moon Fox</a></li>
